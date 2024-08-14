@@ -1,3 +1,2 @@
 ### Hi there 👋
-- :smiley: I'm Khloe, a fresh graduate majoring in English.
-- :seedling: I'm currently working as a technical writer.
+- :smiley: I'm Yushan, a master student majoring in Information Studies at Nanyang Technological University.
